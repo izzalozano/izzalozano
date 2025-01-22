@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da IzzaLozanoo 😁
+## Bem-vindo(a) ao perfil da IzzaLozano 😁
 
  <div>
    <a href="https://github.com/izzalozano">
